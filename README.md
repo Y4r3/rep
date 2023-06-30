@@ -1,2 +1,1 @@
-# rep
-prueba
+me gusta tu mama 
